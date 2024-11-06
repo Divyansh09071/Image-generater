@@ -18,7 +18,7 @@
     ─「𝐈𝐌𝐀𝐆𝐄 𝐆𝐄𝐍𝐄𝐑𝐀𝐓𝐄𝐑」─
 
 </h2>
-<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=♦+𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈+𝐑𝐈𝐒𝐇𝐔+🎭">
+<img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=♦+𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈+𖧹─‌ͥ ⷨ┼𝐃͢𝛊ᩴ𝛎𝛄𝛂⃕𝛈𝛅𝐥┫ 🩵+🎭">
 
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"> 
